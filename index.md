@@ -1,6 +1,3 @@
-# Escrito por J. V. Bellas  
-
-
 ## Poesia com uma pitada de autismo  
 
 
